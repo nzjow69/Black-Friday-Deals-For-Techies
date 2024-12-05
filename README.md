@@ -16,3 +16,4 @@ Here are the latest deals for black friday 2024.
 12. [Typefor coupon code](https://devopscloudcoupon.com/typeform-discount-codes/)
 13. [Mindvalley discount](https://medium.com/@oxylabsproxycoupon/mindvalley-coupon-%EF%B8%8F-up-to-50-discount-aug-2024-e0da394c2854)
 14. [Seo Powersuite Deals & Discount](https://seodiscount.coupons/)
+15. [HammerAI](https://www.hammerai.com/) 50% OFF with code **BZAOH18**
